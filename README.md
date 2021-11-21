@@ -1,0 +1,1 @@
+# Jamoviy-mashq-1.2-Jalolddin-Abdurahmonov
